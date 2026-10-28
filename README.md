@@ -1,1 +1,0 @@
-# ulang-tahun-veerry-alamsyah
